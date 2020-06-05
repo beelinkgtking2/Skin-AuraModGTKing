@@ -1,4 +1,4 @@
-# Nuevo skin AuraModGTking para tu Kodi ![cazfanart](C:\Users\josan\Desktop\Fondos icon\cazfanart.jpg)
+# Nuevo skin AuraModGTking para tu Kodi ![cazfanart]![img](https://i.imgur.com/jtTx5ME.jpg)
 
 
 
