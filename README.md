@@ -1,4 +1,5 @@
-# Nuevo skin AuraModGTking para tu Kodi [img](https://i.imgur.com/jtTx5ME.jpg)
+# Nuevo skin AuraModGTking para tu Kodi ![cazfanart]!
+[img](https://i.imgur.com/jtTx5ME.jpg)
 
 
 
